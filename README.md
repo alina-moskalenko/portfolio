@@ -1,4 +1,4 @@
-Were cooking over here!
+We're cooking over here!
 
 See the Process:
 
